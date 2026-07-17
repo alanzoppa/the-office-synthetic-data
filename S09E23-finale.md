@@ -1,0 +1,1513 @@
+# Finale
+
+**Season 9 · Episode 23**
+
+---
+
+## Scene 1
+
+**Dwight:** The documentary series finished airing ages ago. Why is PBS sending another crew?
+
+**Cameraman:** We're getting bonus footage for the DVD.
+
+**Dwight:** pff, Nobody buys DVDs anymore.
+
+**Cameraman:** It'll be a pledge gift.
+
+**Dwight:** PBS. The propaganda wing of Bill and Melinda Gates and viewers like you.
+
+---
+
+## Scene 2
+
+**Dwight:** In the past year, I have consolidated the entire Scranton paper market. We regained the white pages, the school district, Lackawanna county. We supply them all. I'm getting married tomorrow afternoon, and in the morning, there's a mini-reunion. A kind of a "where are they now" panel at a local theatre. It'll be nice to see everyone again. [laughs] I haven't seen Kevin since we let him go.
+
+---
+
+## Scene 3
+
+**Dwight:** [mimicking trumpet] Today marks several important milestones. Stanley, as you know, is retiring.
+
+**Kevin:** Yes! Whoo, whoo, whoo!
+
+**Stanley:** Ah, I've been looking forward to this day since I was 18 years old.
+
+**Meredith:** Speech!
+
+**Dwight:** No! And our next and most thickly frosted cake is…for…Kevin.
+
+**Kevin:** Yes! Wait, why?
+
+**Dwight:** Go ahead and just read the frosting.
+
+**Kevin:** "Get out."
+
+**Dwight:** Uh-huh.
+
+**Kevin:** What does that mean?
+
+**Dwight:** It's a colloquial way of saying "you're fired," Kevin, which you are.
+
+**Pam:** What? Dwight, you can't do that.
+
+**Dwight:** The cake has spoken Pam. Sorry.
+
+**All:** What?!
+
+**Dwight:** Well if anyone here can make a case for Kevin staying.
+
+**All:** Dwight…[overlapping objections]
+
+**Dwight:** Based…on his merit.
+
+**Oscar:** Ooh.
+
+**Jim:** Umm…
+
+**Kevin:** I'm…good.
+
+**Pam:** Well, Toby will stop it. Anytime anyone's ever been fired, Toby's blocked it, so…
+
+**Toby:** Yeah. Yeah, I don't think…
+
+**Dwight:** Toby, wait. Wait. Hold that thought. Here's your cake. [squirts frosting on the top] Bye, bye Toby.
+
+**Kevin:** [crying] At least I got chocolate.
+
+---
+
+## Scene 4
+
+**Jim:** I bike to work now. Saves on gas, cheaper than a vasectomy and, uh, oh, yeah, it's good for the environment too.
+
+---
+
+## Scene 5
+
+**Jim:** Pam and I are great. She just recently finished her mural for the Irish cultural center.
+
+---
+
+## Scene 6
+
+**Crowd:** Whoo! Yeah
+
+**Jim:** [to Cici] Can you clap! Can you clap for mom?
+
+---
+
+## Scene 7
+
+**Jim:** And Dwight is imitating Japanese business practices for reasons he explained to us in Japanese.
+
+---
+
+## Scene 8
+
+**Pam:** [whispEring] Angela, are you ready for the wedding?
+
+**Angela:** [whispEring] Yes. My heart is so open, I am so at peace. [scoffs] Look at Meredith. She's disgusting. Those feet. They're like the paws of an orangutan.
+
+**Pam:** I think she looks good. Now that she's wearing sports bras, we don't see her boobs as much.
+
+**Dwight:** That is all. Have a good morning.
+
+**Meredith:** Thank you.
+
+**Dwight:** [after Angela kisses Dwight] What was that for?
+
+**Angela:** [laughing] To remind you that our wedding's gonna be wonderful.
+
+**Dwight:** Ah. I know. It just feels so empty with so many of the old gang gone.
+
+**Angela:** D, it's gonna be perfect. The only people that need to be there are you and me.
+
+**Dwight:** Oh, and the old man to feed us the cheese that he's been fermenting since the day of my birth. You keep forgetting about him.
+
+**Angela:** I don't…I don't know why.
+
+---
+
+## Scene 9
+
+**Dwight:** I brought in some new faces, and one old. I always like Devon. I hired him back after Creed faked his own death in the baler the day after the doc aired. The only person he fooled was Kevin. Then the police showed up. Turns out, Creed was in the band "The Grass Roots" in the 1960's. During that time, the police say he sold drugs and trafficked in endangered species meat and stole weapons-grade LSD from the military.
+
+---
+
+## Scene 10
+
+**Phyllis:** Oh, some fudge?
+
+**Malcolm:** Oh, thanks. I love your fudge.
+
+**Phyllis:** Thanks.
+
+**Malcolm:** I think I gained a couple of pounds since I got here.
+
+**Phyllis:** [laughing] Oh, you can afford it.
+
+---
+
+## Scene 11
+
+**Phyllis:** After 16 years, it's strange sitting across from somebody who isn't Stanley. But…he'll get there.
+
+---
+
+## Scene 12
+
+**Jim:** Okay, the limo's gonna be here at five. I need everybody to be ready 'cause I want to pack in a lot.
+
+**Zeke:** Party time! Whorehouse!
+
+**Jim:** Uh, no. No whorehouse. This is Dwight's night, okay?
+
+**Zeke:** Well, you're the bestisch mensch.
+
+---
+
+## Scene 13
+
+**Jim:** Dwight has made me his bestisch mensch. Which is Schrute for best man. He's putting himself entirely in my hands tonight. And I know for over 12 years I've done nothing but trick and prank him but tonight…only good surprises. "Guten Pranken". [chuckles]
+
+---
+
+## Scene 14
+
+**Dwight:** Oh hey, Jim. I forgot to mention. Oftentimes, in Hollywood portrayals of bachelor parties, there are accidental murders. That won't be necessary tonight.
+
+**Clark:** Great, now we got three hours to fill.
+
+**Jim:** Okay, hold on. Are you sure Mose isn't going to show up?
+
+**Dwight:** Ever since Angela moved in and Mose had to stop sleeping at the foot of my bed, he's been acting pretty weird about this whole wedding thing.
+
+**Jim:** Mose has been weird? That's so unlike him.
+
+---
+
+## Scene 15
+
+**Andy:** Yeah, sure, I'll talk about it. Why not? American's next A Cappella Sensation aired my audition. And when I started sobbing uncontrollably, apparently that struck a chord with quite a lot of people. Not a very compassionate chord. The clip went viral, as they say
+
+---
+
+## Scene 16
+
+**Casey:** You can't just sit here and cry.
+
+**Andy:** Oh, I can so just sit here and cry!
+
+---
+
+## Scene 17
+
+**Andy:** Two million hits in the first week and then the parodies started. One from the Philippines got 12 million hits. And the late night comedy guys had a field day with it.
+
+---
+
+## Scene 18
+
+**Bill Hader:** [fake crying]
+
+**Seth Mayers:** Oh, Don't. Aw, come on, Baby Wawa. Don't be such a baby.
+
+**Bill Hader:** [crying and pouring eye drops in his eyes]
+
+**Seth Mayers:** Oh, No. It's gonna be alright.
+
+**Bill Hader:** [pulling multiple tissues out]
+
+**Seth Mayers:** It's gonna be all right. For Weekend Update I'm Seth Meyers. That's Baby Wawa. Good night.
+
+**Bill Hader:** [still crying] Bye!
+
+---
+
+## Scene 19
+
+**Andy:** After my clip blew up, I actually got a call from the double rainbow guy and the fat Star Wars kid. Turns out they have a support group. [pause] Not really my scene.
+
+---
+
+## Scene 20
+
+**Oscar:** [on the phone] Years ago, the senator promised a left turn lane by the Arby's. So I wanna know where in the name of horsey sauce is it? Well, yeah, you…hold on.
+
+**Dakota:** Hi. I keep seeing this symbol in the accounts from last year. It's…it's all over the place. I don't know what it means.
+
+**Oscar:** That's the reason Kevin got fired. It's his magic number. He used to use it to balance his accounts. He used to call it a Keleven. He told Dwight, [imitating Kevin] "A mistake plus Keleven gets you home by seven." He was home by 4:45 that day.
+
+---
+
+## Scene 21
+
+**Nellie:** Oh, I live in Poland now. The Scranton of the E.U. Thank you for flying me out here for the weekend. I'm looking forward to the reunion panel tomorrow. Can't wait to see everyone. Well, almost everyone.
+
+---
+
+## Scene 22
+
+**Toby:** Hello! [laughing] Hello!
+
+**Nellie:** Oh.
+
+**Toby:** Hi! [goes to hug Nellie]
+
+**Nellie:** No.
+
+**Toby:** Oh. [laughs nervously]
+
+**Nellie:** How did you now my plane had arrived? How long have you been stalking me?
+
+**Toby:** Oh, no, no. no. My plane just got in. From New York. Are you still with Piotr?
+
+**Nellie:** No. And I thought I unfriended you.
+
+**Toby:** Anyone can follow a Twitter feed. Wanna share a cab?
+
+---
+
+## Scene 23
+
+**Toby:** [alone in cab} After Dwight fired me, I moved to New York to write the great American novel. I have six roommates. Heh. Which are better than friends, you know 'cause they have to give you one month's notice before they leave.
+
+---
+
+## Scene 24
+
+**Andy:** Hey-OH!
+
+**Meredith:** Andy?
+
+**Oscar:** You're back?
+
+**Andy:** Yeah.
+
+**Malcolm:** [whispEring to Phyllis] That's Baby Wawa, right? Oh, my God!
+
+**Jim:** Hey man, good to see you.
+
+**Andy:** Thank you. Yeah,
+
+**Phyllis:** [hugging Andy]. Andy…
+
+**Andy:** Hey! Aw! A bear hug from my favorite mama grizzly.
+
+**Phyllis:** Andy, I've been worried about you. How are you?
+
+**Andy:** A little warm.
+
+**Phyllis:** Poor, poor Andy.
+
+**Andy:** [struggling] Okay. Aw. Thank you Phyllis.
+
+**Darryl:** Hello, hello.
+
+**Jim:** Hey!
+
+**Meredith:** Darryl!
+
+**Andy:** Hey!
+
+**Darryl:** Hey, what's up?
+
+**Andy:** Didn't I just see you at the airport jumping in a limo?
+
+**Darryl:** What? Must've been another devilishly handsome debonair individual.
+
+**Andy:** Hmm.
+
+**Darryl:** Hey, man. How are you doing? I, um…I didn't call 'cause I figured you changed the number.
+
+**Andy:** No I didn't change the number. All good though. Phone never rings.
+
+**Dwight:** What? Ooh!
+
+**Andy:** Surprise!
+
+**Dwight:** I thought you guys couldn't come.
+
+**Darryl:** Yeah, but then they moved the panel to the same weekend and the Doc crew paid to fly us in. It was kismet.
+
+---
+
+## Scene 25
+
+**Jim:** Kismet? Yeah, right. Pam and I came up with excuses for every other weekend. You remember my two lap band surgeries, right? Neither do I? "Guten Prank" number one.
+
+---
+
+## Scene 26
+
+**Darryl:** You ready for tonight? We gonna tear up the town?
+
+**Dwight:** Uh, better ask Jim.
+
+**Jim:** And Jim will say nothing.
+
+**Pam:** [enters] Darryl! Andy!
+
+**Andy:** Hey! Pam!
+
+**Darryl:** Hey, Pam! How are you?
+
+**Pam:** We're fine. Yeah. [hugs both Darryl and Andy] And I'm sure that you guys are fine too. Because why wouldn't you be?
+
+**Andy:** Mm-hmm.
+
+**Pam:** Darryl, oh, my gosh. How is Austin? Tell me everything. How's the merger? I feel like I read about Athlead all the time.
+
+**Darryl:** I love it. And it's Athleap now. And the city is amazing.
+
+**Jim:** Yeah?
+
+**Darryl:** Yeah. Yeah, it's hot. The music is awesome. And the tacos are…for real.
+
+**Jim:** Wow! That sounds incredible. [checking cell phone]. Oh, guys. Limo's here. Let's do this. Change if you need to.
+
+**Oscar:** Whoo, whoo, whoo.
+
+**Pam:** Okay, you guys, have fun. You too, Andy.
+
+---
+
+## Scene 27
+
+**Oscar:** Yeah!
+
+**Andy:** Aw!
+
+**Darryl:** Woah-Oh! Haven't been in one of these in forever.
+
+---
+
+## Scene 28
+
+**Oscar:** They wanted me to go to the bachelorette party with the girls. Really? Such a cliché. I'm a man. So I'm going to the bachelor party with the boys. I just have to remember how I acted before I came out.
+
+---
+
+## Scene 29
+
+**Oscar:** WASSUUUUP! [laughing]
+
+---
+
+## Scene 30
+
+**Dwight:** Wait, why are we stopping? Jim, this isn't on the itinerary.
+
+**Jim:** Get out.
+
+**Dwight:** Jim…wha… Come on! What…what are you gonna whack me, Jim?
+
+**Jim:** No, Dwight. You'll be doing the whacking.
+
+**Dwight:** A bazooka. You remembered.
+
+**Jim:** Of course I did.
+
+**Dwight:** [tearful laugh]. Get out of my way.
+
+---
+
+## Scene 31
+
+**All:** OH! [all laugh and applaud after Dwight fires the bazooka]
+
+**Dwight:** Woo! Okay!
+
+**Jim:** Yeah! [to camera] Guten Prank number two.
+
+---
+
+## Scene 32
+
+**Jim:** Private Room.
+
+**Oscar:** Yeah, brosef.
+
+**Dwight:** Amazing.
+
+**Jim:** Enjoy, enjoy.
+
+**Guy:** Hey, I know you. Are you gonna sit here and cry?
+
+**Jim:** Okay, man, easy.
+
+**Guy:** [fake cries]
+
+**Jim:** Hey, dude, leave him alone. What are you doing?
+
+**Andy:** Jim, it's fine. He'll just get you on his cell phone and then that'll go viral.
+
+**Darryl:** That happens a lot?
+
+**Andy:** Yeah, I guess. But things are going well actually. I spoke at Cornell during commencement week. I mean, the seniors invited me as a joke but it was a huge success.
+
+**Oscar:** Well, I bet it was a smash.
+
+**Andy:** That's how I got my new job in the admissions office.
+
+**Oscar:** Is that a volunteer program or…
+
+**Andy:** No. It's a job. Things are going great.
+
+**Darryl:** Let's get a drink in you, huh?
+
+**Andy:** Yes.
+
+---
+
+## Scene 33
+
+**Meredith:** Whoo-hoo. Let's get this party started!
+
+**Rachel:** Where's my angel.
+
+---
+
+## Scene 34
+
+**Angela:** This is my big sister Rachel.
+
+**Rachel:** No, this is my big sister Angela.
+
+**Angela:** [laughs] We're very close. We even have our own special language.
+
+---
+
+## Scene 35
+
+**Rachel:** [speaks in a special language]
+
+---
+
+## Scene 36
+
+**Angela:** People love it.
+
+**Rachel:** They do.
+
+---
+
+## Scene 37
+
+**Dwight:** [sighs] Man, how long have we been sitting here?
+
+**Stripper:** Hi, boys!
+
+**All:** Ohh…
+
+**Clark:** Here we go!
+
+**Dwight:** Oh, Thank God. We are famished!
+
+**Stripper:** Hey, did somebody order the chef special?
+
+**Darryl:** Right there.
+
+**Dwight:** No, we haven't ordered anything. No one's even taken our drinks. Uh, what is the chef special? [music plays and stripper starts dancing on Dwight]
+
+**Stripper:** I bet you boys have a big appetite.
+
+**Dwight:** Oh, we do. So we'll have an onion loaf for the table, please. And tell us about your heartiest soups.
+
+**Stripper:** Mm, I know what you want. I know exactly what you want.
+
+**Dwight:** Yes, an onion loaf for the table but that's not all. Now the chef special sounded good. What is it exactly?
+
+**Stripper:** Ohh, shh. [places finger over Dwight's lips]
+
+**Dwight:** Okay, what are you doing? Are you giving me a taste of the chef's special? Tastes like cigarettes. That won't work. That's no good.
+
+---
+
+## Scene 38
+
+**Erin:** Whoo!
+
+**Angela:** What? [knock at the door] Okay.
+
+**Pam:** Oh, boy.
+
+**Erin:** Oh!
+
+**Jakey:** Heard you guys needed some pipes fixed or cleaned or whatever.
+
+**Phyllis:** Angela's special repairman is here.
+
+**Angela:** Wait, what is this?
+
+**Meredith:** Shut up. Jakey?
+
+**Jakey:** Mom?
+
+**Pam:** Wait, wait. What?
+
+**Jakey:** Oh, man.
+
+**Meredith:** No, no, no, no. Just do your wok. Pretend mom's not here.
+
+**Pam:** Uh, that seems inappropriate.
+
+**Meredith:** Give the good show, my little entrepreneur.
+
+**Jakey:** Okay.
+
+**Meredith:** Take it off. [music play]. Yeah! Good song choice, Jakey. Stripper's only as good as his song.
+
+**Rachel:** oh, wowee wow.
+
+**Angela:** Okay…
+
+**Pam:** Whoo-hoo…go, Meredith's stripper son.
+
+**Angela:** Rachel, are you all right?
+
+**Rachel:** I don't know! I don't know.
+
+**Angela:** Oh geeze. [Jakey starts dancing on Angela]. Oh, my God!
+
+**Meredith:** Be gentle Jakey. Gentle. One second. Just one second. Look. [pushes Jakey aside and starts dancing on Angela]
+
+**Angela:** Okay, if anything, this is rougher. Stop it Meredith.
+
+**Meredith:** Fine. My bad. Go ahead Jakey.
+
+**Angela:** [Jakey resumes dancing] Uh, no. It's o…thank you. You know what? You don't have to…oh no, no, no. No, no, no. It's okay.
+
+---
+
+## Scene 39
+
+**Dwight:** Now, for the last time, I'd like a side salad with balsamic.
+
+**Clark:** Dwight, for the last time, she's not a waitress.
+
+**Dwight:** You're telling me!
+
+**Oscar:** If you want her to leave, just tip her.
+
+**Dwight:** What for? We haven't even gotten bread yet. Does anyone wanna split a twice baked potato? [to the dancing stripper] Do you have those? Those aren't deep fried, right?
+
+---
+
+## Scene 40
+
+**Angela:** That was interesting. [creaking sound] What was that?
+
+**Phyllis:** It's just the wind.
+
+**Angela:** Will you lock the door?
+
+**Phyllis:** Okay. [opens door] It's just the wind, see? Nothing.
+
+**Angela:** Alright, see, you don't have to leave the door wide open. We get it. It's the wind. Just come and shut…[Mose grabs Angela and takes her away] OH! My God!
+
+**All:** [screams]
+
+**Erin:** Phyllis!
+
+**Rachel:** What's happening?
+
+---
+
+## Scene 41
+
+**Dwight:** Oh, man, never thought I'd say this but I think I ate too much bone marrow. [phone rings]
+
+**Jim:** Oh, it's the girls. Hey Pam. What? Angela's been kidnapped! Phyllis left the door open and some freak came and grabbed her and fled.
+
+**Dwight:** Good old Mose. [laughing]
+
+**Jim:** They think it was Mose.
+
+**Dwight:** Oh, great. He's getting into the spirit of the festivities. Fantastic. He just pulled off a Braut Entfuhrung.
+
+**Oscar:** What is that?
+
+**Dwight:** A ceremonial bridal kidnapping. He will take the bride and hide her at a local pub and when I find the place, I have to buy everyone drinks. Ah, all right! Oh Mose.
+
+**Jim:** Wait a minute. You said the tradition is for the groom is search for her and it ends at a pub. So how about the last pub you'd ever set foot in in this town?
+
+**Dwight:** Right. Which one is that?
+
+**Jim:** Mm, hey driver. Why don't you take us to 3030 Adams?
+
+---
+
+## Scene 42
+
+**Jim:** Is that Mose?
+
+**Dwight:** Yes, it is! I am here for my bride!
+
+**Mose:** Well, first, buy us a drink.
+
+**All:** If you want your bride, buy us a drink! If you want your bride, buy us a drink.
+
+**Dwight:** Very well! Drinks on me! Bartender! [Kevin turns around] Oh.
+
+**Kevin:** Well, well, well, well, well, well. That's six "wells." Did I get that number right, Dwight?
+
+**Dwight:** I heard you bought a bar, Kevin.
+
+**Kevin:** Yes. I did. This one. Now get out!
+
+**Dwight:** [to Mose] Why did you pick this place? [Mose points to Jim]
+
+**Jim:** Ooh.
+
+**Dwight:** You? You did this as a prank. My own Bestich Mensch.
+
+**Jim:** Nope, not a prank. I think it's time for you to bury the hatchet.
+
+**Dwight:** Waste of a good hatchet.
+
+**Jim:** Okay, just talk.
+
+**Kevin:** Well, w…
+
+**Dwight:** I heard you say "well" the first time.
+
+---
+
+## Scene 43
+
+**Jim:** I know Dwight misses Kevin. I saw him make his portrait out of a Wooly Willy. Tomorrow's his wedding day. You can't be anything but happy on your wedding day.
+
+---
+
+## Scene 44
+
+**Dwight:** It was nothing personal. It's just that you were terrible at your job.
+
+**Kevin:** You're just saying that to make me feel better.
+
+**Dwight:** No really. You were terrible at math and organization, time management, personal hygiene. Your internet searches were so filthy we had to throw our your computer.
+
+**Kevin:** Is that all it was?
+
+**Dwight:** That's it.
+
+**Kevin:** Come here [hugs Dwight]
+
+**Dwight:** I missed you Kevin.
+
+**Kevin:** I missed you!
+
+**Dwight:** Ohh.
+
+---
+
+## Scene 45
+
+**Mose:** Guten Prank.
+
+**Jim:** Yes, Mose. Guten Prank number three.
+
+---
+
+## Scene 46
+
+**Dwight:** You've had your drink. Now where is my bride?
+
+---
+
+## Scene 47
+
+**Dwight:** Mose! What…ooh, Mose. [Mose opens trunk]
+
+**Angela:** What the [bleep] is your problem you [bleep] [bleep] [bleep]?!
+
+---
+
+## Scene 48
+
+**Jim:** Hey. Hey, is Angela coming or…
+
+**Dwight:** No. We can't see each other on our wedding day. And her legs are still numb from being in the trunk.
+
+**Jim:** Right.
+
+**Stanley:** Hey guys.
+
+**All:** Stanley!
+
+**Erin:** How's Florida?
+
+**Stanley:** Oh, great.
+
+---
+
+## Scene 49
+
+**Stanley:** Yes, I'm living in Florida now. Little town called Florida City, just on the edge of the everglades. The man who delivered my divorce papers came by fan boat which was kinda fun. I sit on my porch all day, carving birds.
+
+---
+
+## Scene 50
+
+**Jim:** Am I the only one that's nervous? How are you doing with this? Should we have bailed?
+
+**Pam:** No, no, I'm fine.
+
+**Jim:** Doesn't seem like anyone cares about us anyway.
+
+**Stanley:** I guess this was work being filmed nonstop for nine years.
+
+**Andy:** I'm sorry guys. This is probably on me. I got hated on pretty hard when that auto-tune went viral.
+
+---
+
+## Scene 51
+
+**Kevin:** [watching at his bar] People actually dance to this. It's in my juke box. None of the money goes to Andy though.
+
+---
+
+## Scene 52
+
+**Kevin:** [laughing] Yeah, people hate you.
+
+**Andy:** I'll go talk to the manager. Maybe we should just go home. [walks down the hall]
+
+---
+
+## Scene 53
+
+**Man:** Hey! It's Andy Bernard!
+
+**All:** Nard Dog! [cheers and claps] Ree-De-De-De-Doo! [repeats]
+
+**Andy:** Ree-De-De-De-Doo!
+
+---
+
+## Scene 54
+
+**Man 1:** How did it feel to see your lives played out on tv?
+
+**David Wallace:** It's like seeing a documentary about how your food is made. It's kinda disgusting. You learn a lot, but I didn't wanna know any of it.
+
+**Dwight:** With today's modern surveillance technology we are in a constant state of being watched weather it's our government or the government of other countries a.k.a. Google. You guys are being filmed way more than we ever were.
+
+**Pete:** Uh, no one recognizes me. But not all my friends call me Plop. So… thanks PBS.
+
+---
+
+## Scene 55
+
+**Woman 1:** Uh, Jim, that DVD in the last episode was so romantic. And, um, I think we'd all love to know, Pam, what romantic thing did you do to pay Jim back for leaving Athlead?
+
+**Pam:** Well, I mean, How do you pay back someone for something like that? But, uh, I don't know. I'm working on something.
+
+**Jim:** She pays me back every day just by being my wife so that's fine.
+
+**All:** Awww.
+
+**Jim:** O-Kay.
+
+---
+
+## Scene 56
+
+**Woman 2:** All I can say is, if I had Jim, he would have a free pass to do anything. I mean if I lucked into that… he could do anything. Anything.
+
+**Pam:** [pause] I'm sorry. Is there a question?
+
+**Woman 2:** Uh, no.
+
+---
+
+## Scene 57
+
+**Man 2:** Pam, what was in that teapot letter?
+
+**Pam:** Oh, um, well, you know, I… I just… I just think I would rather keep that private. You know, if you'd been filmed for nine years of your life, there'd be some things that you just wanna keep to yourself.
+
+**Man 2:** I hear ya. What did it say?
+
+**Moderator:** We're gonna move on. Next question please.
+
+---
+
+## Scene 58
+
+**Man 3:** Do you find that your life feels pointless now that nobody's actually filming you anymore?
+
+**Toby:** Yes.
+
+---
+
+## Scene 59
+
+**Woman 3:** I wanna know how everyone felt they were portrayed. Was it accurate?
+
+**Meredith:** I got a beef with that. Um, for the first seven years, I was getting my PhD in School Psychology and they didn't show it. Yes, I was getting hammered but, hey, it was college.
+
+---
+
+## Scene 60
+
+**Woman 4:** I have a question for Jim and Pam. Everyone watching sees how much you love each other and how you're soul mates. So, Pam, how could you doubt that when Jim moved to Philadelphia?
+
+**Jim:** Um, you know what, I actually didn't handle that move, uh, very gracefully. From not communicating to being a little selfish.
+
+**Pam:** Listen, um… I was scared, you know? I loved what I had, and I didn't want to risk it. And I think that maybe I did doubt him a little too. Which was wrong because he's shown me time and again. But when the documentary started airing, people on the street told me that I had this fairy-tale romance. But there were a lot of times last year where it did not feel like a fairy tale. But then it got deeper, and it got stronger and now it's better than a fairy tale. It's like a long book that you never want to end. And you're fine with that because you just never, ever wanna leave it.
+
+**Woman 4:** Like Harry Potter.
+
+**Pam:** Yeah, like Harry Potter.
+
+---
+
+## Scene 61
+
+**Joan:** I have a question for Erin.
+
+**Erin:** Really?
+
+**Joan:** Yes. Um, the thing I found most compelling about the documentary was your search for your birth mother.
+
+**Erin:** Thank you.
+
+**Joan:** So my question is, um, do… don't you hate her? I mean, I would just imagine that you were so angry at her that you would hate her.
+
+**Erin:** Maybe sometimes. But not like "hate" hate. More just like, "Mom, I hate you!" And then she would say "go to your room, young lady." And I'd stamp my foot and run upstairs and I have a room, which is really cool. And then we'd just have dinner together. But I don't know. I'd have to meet her. Thanks.
+
+**Joan:** Erin…
+
+**Erin:** Yes?
+
+**Joan:** Um…Oh, Erin…
+
+**Erin:** Yes? Is there a follow-up question? [realizes] Mom? [they hug]
+
+**Ed:** Erin… Same question but about your dad? [they hug]
+
+**Moderator:** Well, this feels like a good place to stop. Let's thank all of our wonderful panelists for being here on this wonderful panel today. [audience claps] Next week at the Scranton Cultural Center don't forget, Irish Step Dancing semifinals. Winning team to Mid-Atlantic. [applause and scattEring cheers]
+
+---
+
+## Scene 62
+
+**Kevin:** Where's the, uh, basket for gifts?
+
+**Usher:** Right there, sir.
+
+**Kevin:** Okay.
+
+---
+
+## Scene 63
+
+**Dakota:** Hi, I'm Dakota.
+
+**Creed:** Jeff Bomondo. I sell ceramic tile out of Newark.
+
+**Dakota:** Nice.
+
+**Creed:** My wife's name is Kathryn. I can show you my social security card if it helps.
+
+---
+
+## Scene 64
+
+**Kelly:** Uck, Look at all this mud. Can you imagine if I had worn my Jimmy Choos? I just saved you 600 bucks mister.
+
+**Ravi:** Thanks for helping out, sweetie.
+
+**Ryan:** Kelly, you're here.
+
+**Kelly:** Hey, Ryan!
+
+**Ryan:** Hey.
+
+**Kelly:** Whose baby is this? Oh, are, like, a nanny now?
+
+**Ryan:** No, this little guy is mine.
+
+---
+
+## Scene 65
+
+**Ryan:** So I was dating this girl, and one day, she went out to get a new charger for her e-cigarette. Never came back. Oldest story in the book. [baby squeals]
+
+---
+
+## Scene 66
+
+**Ryan:** Say "hi", Drake.
+
+**Kelly:** Drake is your baby's name?
+
+**Ryan:** Yeah.
+
+**Kelly:** That is an amazing name. I'm obsessed with Drake. His last album… it just touched me to pieces.
+
+**Ryan:** No Kelly, he's no named after a hip-hop artist from 2011. It's Drake, like a mix of Drew and Blake.
+
+**Kelly:** Cool. Well, he is so cute. Ravi, check out this cute baby. I'm obsessed with him. Ravi is a pediatrician and some of his patients are total uggos.
+
+**Ravi:** They're called premature, sweetie. It's good to see you again Ryan.
+
+---
+
+## Scene 67
+
+**Phyllis:** Let me help you us.
+
+**Angela:** Thanks. [knees buckle] Oh. Ouch.
+
+**Pam:** Oh, boy. Maybe your heels are too high.
+
+**Angela:** No, my heels aren't too high. It's because I spent three hours in a car trunk. Thanks for not locking the door when I asked you to, Phyllis. [sighs] Sorry Phyllis. You didn't know. As long as I can get to the altar.
+
+**Phyllis:** Oh, I'm gonna get you to that altar. You can take that to the bank.
+
+---
+
+## Scene 68
+
+**Jim:** You ready?
+
+**Dwight:** [chuckles] You kidding? I was born ready. [mimicking heavy metal guitars]
+
+**Jim:** Dwight, Dwight, Dwight. Um… I don't know how to tell you this, but… we have a little bit of a problem.
+
+**Dwight:** Oh, no. What?
+
+**Jim:** The minister just told me that it's tradition for the Bestish Mensch to be older than the groom.
+
+**Dwight:** Oh, come on. I've never heard of such a thing.
+
+**Jim:** I haven't heard of it, obviously. But I'm out because I am significantly younger than you-
+
+**Dwight:** Not… significant is a big word…
+
+**Jim:** I think it's definitely… Well, okay. Either way…
+
+**Dwight:** I think you're only a teeny…
+
+**Jim:** Either way, Dwight… I can't be there for you. I'm sorry.
+
+**Dwight:** Jim.
+
+**Jim:** I just…really wish there was something I could do. [looks off]
+
+**Dwight:** [turns around] [whispEring] Michael. I can't believe you came.
+
+**Michael:** That's what she said.
+
+---
+
+## Scene 69
+
+**Jim:** Best prank ever.
+
+---
+
+## Scene 70
+
+**Minister:** As it is traditional to the Schrutes, the lovers are standing in their own graves as a reminder that this is the only escape from what they are about to do.
+
+**Nellie:** [to Joan] See, I get what they are trying to do, but why are the graves so shallow?
+
+---
+
+## Scene 71
+
+**Kevin:** [reading] "Arise, my love, my fair one, and come away. For lo, the winter is passed. The rain is over and gone. The time of singing has come and the voice of the turtledove is heard in our land. Let me see your face. Let me hear your voice for your voice is sweet and your face is comely. "
+
+---
+
+## Scene 72
+
+**Minister:** I now pronounce you man and wife. [everyone cheers] Release the doves! [doves do not move right away]
+
+**Kelly:** Oh.
+
+**Kevin:** That's not…
+
+**Dwight:** Ladies and gentlemen. Thank you so much for coming. Now, please take your hay bales to the reception. They'll be used for seating. Complimentary hay hooks are placed alone the aisles. Just stab 'em on in there.
+
+---
+
+## Scene 73
+
+**Dwight:** Everybody!
+
+---
+
+## Scene 74
+
+**Jim:** [dancing with Pam. They kiss] See, now you don't owe me anything.
+
+---
+
+## Scene 75
+
+**Ryan:** Ravi? Ravi? Drake has a bit of a rash. And he's hot.
+
+**Ravi:** Oh, no.
+
+**Ryan:** I was wondEring could you maybe examine him for a second?
+
+**Ravi:** Oh, yeah, you're not feeling well little guy? Okay, sure. Should we go inside?
+
+**Ryan:** Actually, could you go inside? I'm feeling a little dehydrated. I could really use a little break, have some water.
+
+**Ravi:** Are you sure you don't wanna go in?
+
+**Kelly:** Ravi, just do it. That baby is burning up. Isn't this, like what you live for? Just go. Go.
+
+**Ryan:** Thank you Ravi. Thank you so much. This is great for me and for Drake. Thank you.
+
+**Kelly:** I don't know, Ryan. Baby Drake didn't look so good.
+
+**Ryan:** He'll be fine. I let me suck on a strawberry. He's allergic but he'll get over it fast. I had to talk to you.
+
+**Kelly:** You gave your baby an allergic reaction just to talk to me? [they kiss]
+
+---
+
+## Scene 76
+
+**Pam:** Michael has so many pictures of his kids he had to get two phones with two numbers and he pays two bills.
+
+**Pam:** [with Michael] Oh, my gosh, it's choreographed!
+
+**Pam:** He just so happy to have a family plan.
+
+---
+
+## Scene 77
+
+**Ed:** Where'd you learn to dance like that?
+
+**Erin:** I don't know. I've just always been really good at dancing.
+
+---
+
+## Scene 78
+
+**Toby:** [dancing with Pam] [sobbing]
+
+**Pam:** Is it me? Is it Nellie?
+
+**Toby:** [sobbing] It's everything.
+
+---
+
+## Scene 79
+
+**Phyllis:** [dancing with Stanley] I missed you.
+
+**Stanley:** I missed you too.
+
+---
+
+## Scene 80
+
+**Phyllis:** Lots of people think that Stanley Hudson's a mean old grump. [laughs] But [crying] would a grump make this? It's me. It's me.
+
+---
+
+## Scene 81
+
+**Ryan:** I love you.
+
+**Kelly:** [laughing] I love you too.
+
+**Ryan:** We're gonna be together forever.
+
+**Kelly:** We're running off into the sunset.
+
+**Ryan:** I finally mastered commitment.
+
+---
+
+## Scene 82
+
+**Kevin:** [to Oscar] What was that stuff?
+
+**Ravi:** Hey, has anyone seen Ryan… or Kelly?
+
+**Kevin:** Ooh! Yes. Uh, They left together a little while ago. Kelly was hoping that you would keep the baby so they can start a new life together.
+
+**Ravi:** Oh, that's it. Here. [hands Drake to Kevin] Call child services and report an abandoned baby. We'll find a better parent than Ryan in no time.
+
+**Kevin:** Oh, I don't know.
+
+**Nellie:** Um, Kevin? Oh, I can help you with that. Yeah. I mean, I can find someone who will… who will love that beautiful little boy the way he deserves.
+
+**Kevin:** Hey, this is better. [hands Drake to Nellie]
+
+**Nellie:** Yes. It is. Oh yes it is.
+
+---
+
+## Scene 83
+
+**Nellie:** If Ryan wants his baby back, please tell him where to fine me. We'll be somewhere in Europe. [looking at Drake] Won't we?
+
+---
+
+## Scene 84
+
+**Michael:** [crying] I feel like all my kids grew up and then they married each other. It's every parent's dream.
+
+---
+
+## Scene 85
+
+**Darryl:** Thank you go much.
+
+**Dwight:** Good night.
+
+**Toby:** Good luck.
+
+**Val:** Great. It was really fun.
+
+**Dwight:** Good evening.
+
+**Val:** The Doc crew's throwing a big after party in the warehouse tonight.
+
+**Darryl:** Yeah, I heard. It sounds kinda lame. [to camera] No offense. You going, Toby?
+
+**Toby:** Oh, I don't know. I might turn in early.
+
+**Andy:** It's only 6:00. Come on, everybody's going.
+
+**Meredith:** You have to go, Toby.
+
+**Pete:** Yeah, come on, Tobes.
+
+**Val:** Come on.
+
+**Toby:** Yeah. I'll stop by.
+
+**Pete:** There he is!
+
+---
+
+## Scene 86
+
+**Pam:** I need to get out of this dress.
+
+**Jim:** I gotta get out of this dress.
+
+**Carol:** Oh, I'm sorry Pam.
+
+**Jim:** What's going on?
+
+**Pam:** [sighs] [whispEring] Why are you still here?
+
+**Carol:** [whispEring] I'm so sorry. They were an hour late.
+
+**Jim:** No, really, what's going on?
+
+**Pam:** Okay, Okay. Um… so… this past year has been really great, and you've been great and I just… I know that you had to make this choice and you had to give something up for me. But I never want you to have to give up anything. I just thought if I could get us an offer then there wouldn't be anything standing in our way and I could come to you with this big Jim gesture… and show you all at once just how much I love you and how much I really do believe in your future.
+
+**Jim:** Sorry, how long have you been showing the house?
+
+**Pam:** About 2 months
+
+**Jim:** That's why it's so clean.
+
+**Pam:** Yeah.
+
+**Jim:** I mean, you were gonna do this without me?
+
+**Pam:** Well, you… you bought the house without telling me, so I thought I could sell it without telling you.
+
+**Jim:** Oh… okay. Where would we go?
+
+**Pam:** Austin? Maybe.
+
+**Jim:** I promise you, you don't have to do this for me.
+
+**Pam:** I'm doing it for us.
+
+**Jim:** The last…
+
+**Buyer:** Okay. We'll take it.
+
+**Jim:** [to the buyer] Hold on a second. [to Pam] The last few months have meant the world to me and all I care about…
+
+**Pam:** Hold on a second. [turning] Wait, what did you just say?
+
+**Buyer:** We wanna buy your house.
+
+**Jim:** You wanna do this?
+
+**Pam:** I wanna do this.
+
+**Jim:** You really want to do this?
+
+**Pam:** I really want to do this!
+
+**Jim:** [hugging Pam] [laughing] Oh my God!
+
+---
+
+## Scene 87
+
+**Jim:** Hey, Darryl. [whispers in his ear]
+
+**Darryl:** What? All right!
+
+**Pam:** We're so excited.
+
+---
+
+## Scene 88
+
+**Phyllis:** Cool.
+
+**Woman:** Oh, that's for PBS executives only.
+
+**Stanley:** I had to pledge $50 to my local PBS station just to get this.
+
+---
+
+## Scene 89
+
+**David Wallace:** I think your ideas are fantastic, Oscar. I'd love to contribute to your campaign.
+
+**Oscar:** Thank you David.
+
+---
+
+## Scene 90
+
+**Pam:** Uh, could I please have your attention? So a year ago, I got my first art commission to paint a mural for Dunder Mifflin and I decided to paint the history of paper…,which was just some trees and stuff. And then someone spray painted a bunch of butts on it and I had to start from the beginning. But it all worked out for the best because I think that I've painted the perfect thing which is the history of us. All of us. And this is for you Jim. [applause] And go ahead! [drape drops and everyone cheers]
+
+**Pam:** Everyone, Let's take our picture in front of the mural. Oh, um, I just…I kind of meant just everybody from the office.
+
+---
+
+## Scene 91
+
+**Photographer:** [taking pictures] Very nice. Just a couple dozen more. Smiles, everybody, smiles. All right, that's great. I got enough. Thank you, everybody.
+
+---
+
+## Scene 92
+
+**Jim:** [whispEring to Pam] Let's go outside
+
+**Pam:** Okay.
+
+---
+
+## Scene 93
+
+**Stanley:** Okay, I need a drink.
+
+**Kevin:** Yeah, we all need a drink. [opening Meredith's drawer] What the…there's only dandelion tea and raisins in here.
+
+**Meredith:** Hey, bottom drawer.
+
+**Kevin:** Yes!
+
+---
+
+## Scene 94
+
+**Pam:** [answEring the phone] Dunder Mifflin, This is Pam. Oh, I'm sorry. Jim Halpert doesn't work here anymore.
+
+---
+
+## Scene 95
+
+**Pam:** I didn't watch the whole documentary. After a few episodes, it was too painful. I kept wanting to scream at Pam. It took me so long to do so many important things. It's just hard to accept that I spent so many years being less happy than I could have been. Jim was 5 feet from my desk and it took me four years to get to him. It'd be great if people saw this documentary and learned from my mistakes. Not that I'm a tragic person. I'm really happy now. But…it would just…just make my heart soar if someone out there saw this and she said to herself "be strong, trust yourself, love yourself. Conquer your fears. Just go after what you want and act fast, because life just isn't that long."
+
+---
+
+## Scene 96
+
+**Kevin:** If there is one thing that I have learned through this whole experience, it's that if you film anybody long enough, they're going to do something stupid. It's only human natural.
+
+---
+
+## Scene 97
+
+**Dwight:** Hey guys.
+
+**Angela:** Hi.
+
+**All:** Hey!
+
+**Pam:** What about the honeymoon?
+
+**Angela:** Oh, the honeymoon can wait till tomorrow. We wanted to hang out with you guys. I mean, when are we all going to be here together again?
+
+**Dwight:** Aww, J, P and D. The Three Amigos. Ah, it warms my heart. Hey, what do you say, when I get back from out honeymoon, the three of us have a conference room meeting just for fun? [pause] What is that meaningful look?
+
+**Jim:** You know what? Maybe we should talk.
+
+---
+
+## Scene 98
+
+**Darryl:** Hey, come here. You guys need to see this.
+
+**Kevin:** What is it?
+
+**Andy:** [on the computer] You're probably sitting there wondEring what will be your mark. What will you be known for? It might surprise you to learn…
+
+---
+
+## Scene 99
+
+**Pam:** I finally feel ready. Athlead is growing…
+
+**Jim:** Athleap.
+
+**Pam:** And Jim can jump back in without skipping a beat. We'll come back to visit. But I think it's time for us to officially…
+
+**Dwight:** No, don't say it. You're fired! You're both fired!
+
+**Jim:** Dwight, come on. Don't end on a bad note.
+
+**Dwight:** Don't be an idiot. It's for the severance. The best I can do one month for every year you've been here. That's the max.
+
+**Pam:** Thanks Dwight.
+
+**Jim:** Hey, and if you're ever in Austin…
+
+**Dwight:** Woah. Right. For what, the art? The music? The incredible nightlife? No thank you. But if you're ever in the area, you'll always have a place to stay…in my barn.
+
+**Jim:** There it is.
+
+---
+
+## Scene 100
+
+**Dwight:** Do I get along with my co-workers? Well, first of all, I don't have co-workers anymore, I have subordinates. So… have I gotten along with my subordinates? Let's see. My supplier relations rep, Meredith Palmer, is the only person I know who knows how to properly head bang to Motorhead. Oscar Martinez, my accountant, is now godfather to my son. Angela Schrute, my former accountant is now my wife. My top salesman, Jim Halpert was best man at my wedding and office administrator Pamela Beesley Halpert is my best friend. So…yes. I'd say I have gotten along with my subordinates.
+
+---
+
+## Scene 101
+
+**Andy:** [on computer] You might feel sorry for me but I actually feel sorry for you. Because you're about to leave Cornell. So say it with me: [all]: Oh, I can so just sit here and cry.
+
+**Kevin:** Oh, Yes!
+
+**Darryl:** You did good. Real good.
+
+**Andy:** Thanks Dad…Darryl.
+
+---
+
+## Scene 102
+
+**Andy:** I spent so much of my time here at Dunder Mifflin thinking about my old pals, my college a cappella group. The weird thing is now, I'm exactly where I wanna be. I got my dream job at Cornell and I'm still just thinking about my old pals. Only now they're the ones I made here. I wish there was a way to know you're in the good old days before you've actually left them. [pause] Someone should write a song about that.
+
+---
+
+## Scene 103
+
+**Oscar:** You take something ordinary, like a piece of paper. It's not much. But if you see it in the right way…And that's what you did with this documentary. But seriously, you made a nine-year documentary and you couldn't once show me doing my origami.
+
+---
+
+## Scene 104
+
+**Creed:** [walking out of the bathroom discovered by all] Uh…ohh!
+
+---
+
+## Scene 105
+
+**Creed:** [playing guitar and singing] I saw a friend today. It had been a while. And we forgot each others names. But it didn't matter. 'Cause deep inside the feeling still remained the same…
+
+---
+
+## Scene 106
+
+**Jim:** Imagine going back and watching a tape of your life. You could see yourself change and make mistakes…and grow up. You could watch yourself fall in love, watch yourself become a husband, become a father. You guys gave that to me. And that's…an amazing gift.
+
+---
+
+## Scene 107
+
+**Phyllis:** Hey, Jim, remember flonkerton when you did Office Olympics? It was awesome.
+
+**Jim:** Thanks Phyl.
+
+**Creed:** I still have my medal from that.
+
+**Angela:** Do you even have a mattress?
+
+**Creed:** No, but I still have my medal from that.
+
+---
+
+## Scene 108
+
+**Kevin:** Oscar. Oscar. [crying] I think I'm gay.
+
+**Oscar:** Why do you say that?
+
+**Kevin:** [sniffles] It's just that I'm so emotional.
+
+**Oscar:** Yeah, but you're not gay. You're not gay.
+
+**Kevin:** No, but maybe the reason…
+
+**Oscar:** You're not gay.
+
+---
+
+## Scene 109
+
+**Creed:** [still playing and singing] And all the faces that I know have that same familiar glow. I think I must have known them somewhere once before.
+
+---
+
+## Scene 110
+
+**Erin:** How did you do it? How did you capture what it was really like? How we felt and how made each other laugh and how we got through the day? How did you do it? Also, how do cameras work?
+
+---
+
+## Scene 111
+
+**Darryl:** Everyday when I came into work, all I wanted to do was leave. So why in the world does it feel so hard to leave right now?
+
+---
+
+## Scene 112
+
+**Creed:** It all seems so very arbitrary. I applied for a job at this company because they were hiring. I took a desk at the back because it was empty. But…[chuckles] no matter how you get there or where you end up, human beings have this miraculous gift to make that place home. [standing with two cops] Let's do this.
+
+---
+
+## Scene 113
+
+**Meredith:** I just feel lucky that I got a chance to share my crummy story with anyone out there who thinks they're the only one to take a dump in a paper shredder. You're not alone sister. Let's get a beer sometime.
+
+---
+
+## Scene 114
+
+**Phyllis:** I'm happy that this was all filmed so I can remember everyone and what we did. I worked for a paper company all these years and I never wrote anything down.
+
+---
+
+## Scene 115
+
+**Jim:** I sold paper at this company for 12 years. My job was to speak to clients on the phone about quantities and types of copier paper. Even if I didn't love every minute of it, everything I have, I owe to this job. This stupid…wonderful…boring…amazing job.
+
+---
+
+## Scene 116
+
+**Pam:** I thought it was weird when you picked us to make a documentary. But all in all…I think an ordinary paper company like Dunder Mifflin was a great subject for a documentary. There's a lot of beauty in ordinary things. Isn't that kind of the point?
+
+---
