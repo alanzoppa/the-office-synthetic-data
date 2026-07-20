@@ -1,0 +1,77 @@
+Date: Week 3
+Clinician: Dr. Karen Mitchell, LCSW
+Client: Michael Scott
+Session Type: Individual Therapy (Assessment Wrap & Treatment Plan Presentation)
+
+Subjective
+
+Client arrived having completed the homework from session 2 (Performance Log), bringing 12 entries on index cards. He reported the exercise was difficult but illuminating. Key entries:
+
+1. Monday: Performed a "twirl" when the office didn't respond to his greeting. Trigger: room not responding. He noted: "Performed because the room didn't respond."
+2. Wednesday: Used a comedic voice when speaking with David Wallace (CFO). Wrote: "Performed because I need David to think I'm good at my job. If he thinks I'm funny, maybe he won't fire me."
+3. Thursday: Turned off TV at home (unusual), felt "bad" within two minutes, texted Dwight a meme. Wrote: "Performed because the silence felt like being alone. If I'm not sending something to someone, nobody knows I'm here."
+
+Client identified the pattern himself: most performances are triggered by feeling someone might "leave emotionally" — zone out or stop paying attention. He described the performance as "like a faucet — you have to keep turning it or the water stops."
+
+After sharing the log, the clinician presented a formulation and proposed treatment plan. Client received it with visible emotion, stating: "Nobody's ever understood what's going on. I didn't even know what was going on until you said it." He explicitly acknowledged his urge to make a joke ("Can I get this plan laminated?") and chose not to — a notable moment of self-observation in real time.
+
+Objective
+
+- Appearance: Well-groomed, arrived with index cards (homework completed)
+- Behavior: Cooperative, visibly more vulnerable than previous sessions; made conscious choice to withhold a joke
+- Mood: Reflective; described awareness as "uncomfortable before it's useful" (clinician's framing, which client accepted)
+- Affect: Mixed — genuine engagement, brief flashes of sadness, impulse to perform present but partially managed
+- Speech: Measured when discussing the log; accelerated when presenting entries; slowed when receiving the formulation
+- Thought process: Linear, insightful; demonstrated capacity to connect patterns across entries
+- Insight: Strengthening — client identified the "emotional leaving" trigger pattern independently; chose to name a joke impulse rather than act on it
+- Judgment: Intact
+- Safety: Denies SI/HI
+
+Assessment
+
+Session 3 completes the assessment phase. The client engaged substantively with the homework and demonstrated readiness for active treatment. The formulation presented:
+
+Core belief: "If I'm not entertaining, people will leave me."
+Origin: Father's departure (age 4-5), stepfather's emotional disengagement, mother's responsive engagement to performance.
+Current manifestation: Performance as default interpersonal mode; inability to identify own needs; toleration of criticism in relationships (Jan) as the price of presence; sleep disturbance as the system's inability to regulate without an audience.
+
+The client's homework revealed the performance pattern operates continuously — in the office, with authority figures, and in solitude. The Thursday entry (silence → anxiety → reaching out via phone) is particularly significant: it demonstrates that the performance compulsion extends beyond social contexts into self-regulation of affect.
+
+The client's moment of choosing not to make a joke when receiving the treatment plan is a small but meaningful clinical signal: he is beginning to observe the impulse in real time, which is a prerequisite for change.
+
+Plan
+
+**Treatment Plan (formally written, copy to be provided to client next session):**
+
+Client: Michael Scott
+Date: [Session 3 date]
+Clinician: Dr. Karen Mitchell, LCSW
+
+Presenting Problem:
+Chronic anxiety related to interpersonal approval-seeking, identity fusion with occupational role ("World's Best Boss"), emotional avoidance through humor and performance, and sleep disturbance. Client's self-worth is externally contingent — maintained through others' happiness and approval — and he cannot identify his own needs.
+
+Relevant History:
+- Father left when client was approximately 4-5 years old
+- Stepfather (Jeff) was physically present but emotionally disengaged
+- Mother was loving but frequently absent due to work; responded to client's performance with engagement
+- Client developed humor and entertainment as a strategy to maintain connection from an early age
+- Currently in a relationship with Jan (former corporate superior) characterized by significant criticism, which client frames as supportive
+
+Diagnoses:
+- Generalized Anxiety Disorder (provisional)
+- Rule out: Histrionic personality traits (deferred pending further assessment)
+
+Treatment Goals:
+1. Increase awareness of the performance pattern — triggers, frequency, and emotional costs (ongoing from session 3)
+2. Develop ability to tolerate being present without performing — gradual exposure to silence, stillness, and authentic interaction (target: sessions 10-13)
+3. Begin identifying personal needs independent of others' needs (target: sessions 15-20)
+4. Explore early attachment experiences (father, stepfather, mother) and connect to current relational patterns including the Jan relationship (target: sessions 14-18)
+
+Modality: Integrative — MI-informed CBT with attachment/psychodynamic awareness
+Frequency: Weekly, 50 minutes
+Review date: Session 13
+
+Homework:
+- Continue Performance Log with added column: note the emotion beneath each performance impulse (anxious, scared, lonely, etc.)
+
+Next appointment: 1 week
