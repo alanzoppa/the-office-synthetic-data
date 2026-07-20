@@ -1,0 +1,45 @@
+clinician: Hi, Pam. I'm Dr. Pierce. Come on in.
+client: Hi. Thank you. You have a nice office. It's very... calm in here.
+clinician: Thank you. Have a seat wherever you'd like. So what brings you in today?
+client: I don't — I'm not really sure how to start. I've never done this before. Therapy, I mean. I've never been to therapy. I don't know if I'm supposed to just start talking or if you ask questions or —
+clinician: You can start however you'd like. There's no wrong way.
+client: Okay. Well. I guess I've just been feeling... stuck. Like I'm in the same place I've been in for a long time and I can't figure out how to move. Which sounds vague. I know it sounds vague. But that's what it is. Stuck.
+clinician: Stuck where?
+client: Everywhere. Work. Home. Just — life. I do the same thing every day. I go to work, I do my job, I come home, I make dinner, I watch TV, I go to bed. And then I do it again. And it's not bad. It's not — I'm not unhappy. I'm just not... anything. I'm just there. Going through the motions.
+clinician: You said "not unhappy." Can you tell me what you are?
+client: Fine. I'm fine. I'm — that's the thing. I'm fine. And I know "fine" isn't a feeling, but it's the only word I have. I'm fine.
+clinician: You're right. "Fine" isn't a feeling. It's a status. It means "not broken." What are you feeling right now, in this moment?
+client: [pause] Nervous. I'm nervous. My hands are cold. I keep rubbing my thumb. I didn't even notice I was doing that until you asked.
+clinician: That's good. You noticed. What else?
+client: Embarrassed, a little. That I can't answer a simple question like "what are you feeling." Most people can just say "I'm sad" or "I'm angry" or "I'm happy." I just say "fine." It's like I lost the other words.
+clinician: You didn't lose them. You may have just stopped using them. Let's try to find them together. Tell me about your job.
+client: I'm a receptionist at Dunder Mifflin. It's a paper company. The Scranton branch. I answer phones, I transfer calls, I do some data entry, I manage the front desk. It's not — it's not a bad job. The people are mostly nice. My boss is... he's a lot. He's very — he's a personality. But he means well. And there's a guy there, Jim, who's — he's a friend. He makes me laugh. So it's not bad.
+clinician: You said "not a bad job" twice now. Why do you need to qualify it?
+client: Because I don't want you to think I'm complaining. I have a job. A lot of people don't. I get paid. I have benefits. It's fine. It's a fine job.
+clinician: I'm not asking whether it's a fine job. I'm asking how it feels to do it.
+client: [long pause] It feels like watching other people's lives happen. I sit at the front desk and people walk by and they have things to do and places to go and conversations and conflicts and I just... sit there. I'm the background. I'm the person who transfers the call. I'm not in the scene. I'm in the background of the scene.
+clinician: "In the background of the scene." That's a vivid way to put it.
+client: I guess. I don't know if that's — is that a thing people feel? Is that a therapy thing to say?
+clinician: It's a very clear way to describe what it's like to feel like you're not the main character in your own life.
+client: [pause] Yeah. That. Not the main character in my own life. That's exactly what it feels like.
+clinician: Tell me about home.
+client: I live with my fiancé. Roy. We've been together for — since high school, basically. We're engaged. We're planning the wedding. I mean, I'm planning the wedding. Roy helps. He helps sometimes. He's — he's fine. He works hard. He's a warehouse worker at the same company, actually. We met in high school and we've been together ever since.
+clinician: "Fine" again.
+client: I know. I know I keep saying it. I don't know what else to say. Roy is — he's not mean. He doesn't yell. He comes home and he eats dinner and he watches TV and he goes to bed. He's not — he's just there. We're just there. Together but not — I don't know. I don't know how to describe it.
+clinician: Try.
+client: It's like — you know when you're sitting next to someone on a bus? You're both going to the same place, but you're not together. You're just both there. That's what it feels like with Roy. We're both going to the same place. But we're not together. We're just both on the bus.
+clinician: How long has it felt like that?
+client: I don't know. A while. Maybe always? I don't — I don't remember it feeling different. Maybe at the beginning it was — I was nineteen when we got together. I'm twenty-seven now. That's eight years. I don't remember a time when it felt like we were actually together. It just always felt like proximity. Like being next to someone.
+clinician: You've been with Roy since you were nineteen. What did you want at nineteen?
+client: I wanted — I don't remember. I wanted to be wanted, I think. Roy wanted me. That felt like enough. Someone wanting you feels like a lot when you're nineteen and you don't know what you want yourself.
+clinician: And now?
+client: Now I don't know what I want. I still don't know what I want. That's the stuck feeling. I don't know what I want and I'm afraid to find out because what if what I want is different from what I have? What if I've built this whole life and it's the wrong life? What if I'm twenty-seven and I'm in the wrong life and it's too late?
+clinician: It's not too late. But let me ask you something. You came in today. You sat down. You told me you feel stuck and you're not the main character in your own life. That's you reaching for something. What are you reaching for?
+client: [pause] I think I'm reaching for... permission. To want things. To want something different. To admit that "fine" isn't enough. That "fine" is — "fine" is what you say when you're too scared to say what you actually feel.
+clinician: That's a good place to start, Pam. That's a very good place to start.
+client: Is it? It doesn't feel like much. It just feels like complaining.
+clinician: It's not complaining. It's the first honest thing you've said in this room. And I'd like to see you again next week.
+client: Okay. I'd like that. Same time?
+clinician: Same time. And Pam — between now and next week, I want you to notice one thing. Just one. When you say "fine" to yourself, ask: "Fine compared to what?" You don't have to answer. Just notice the question.
+client: Fine compared to what. Okay. I can do that. Thank you, Dr. Pierce.
+clinician: See you next week.
