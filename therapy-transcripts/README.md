@@ -19,8 +19,6 @@ therapy-transcripts/
       transcript.txt
       note.txt
     ...
-  jim-halpert/              # TBD
-  pam-beesly/               # TBD
 ```
 
 ## Format
